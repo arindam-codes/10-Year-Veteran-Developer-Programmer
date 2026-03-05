@@ -4,7 +4,7 @@ Most beginners think animation = moving limbs.
 
 But the market shows **6 different animator specializations**.
 
-Below is the **complete Animator Skill Tree extracted from the job posts.**
+Below is the **complete Animator Skill Tree analysed from job posts.**
 
 ---
 
